@@ -1,5 +1,5 @@
 -------👋<b> @kkumar06-tech-------<br>
-<i><b>"haVe notHinG tO Do,oTheR tHan To CoDe aNd  aNalYsing
+<i><b>"haVe notHinG tO Do,oTheR tHan To CoDe aNd  aNalYse
 hOw acUallY tHe ProgRam iS woRKing.
 
 <!---
